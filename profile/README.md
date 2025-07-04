@@ -2,7 +2,7 @@
 
 Velkem en Langa Turkistana officio GitHub!
 
-Turkistana es a easy langa evemonde peu apprer.
+Turkistana es a fasel langa evemonde peu apprer.
 
 (Welcome to Turkistanese Language's official Github!
 
